@@ -174,4 +174,4 @@ Developed and maintained by Naresh Yadav.
 | Platform | Link |
 | --- | --- |
 | Linkedin | (https://linkedin.com/in/naresh-ydav6367/) |
-| Instagram | (https://www.instagram.com/naresh_yadav6367) |
+| Instagram | (https://www.instagram.com/naresh_mehta45/) |
